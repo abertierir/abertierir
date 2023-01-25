@@ -17,3 +17,11 @@
 - You can find my [webstie here](https://abertierir.github.io) and my [CV here](https://ignaciomsarmiento.github.io/assets/CV_Sarmiento_Barbieri.pdf).
 - 📫 If you want to talk to me you can make an appointment [here](https://calendly.com/abertierir/30min), or send me an email to abertierir (at) unal.edu.co
 - 😄 Pronouns: she/her
+
+My Content
+LinkedIn Courses
+Blog
+LinkedIn Profile
+YouTube Channel
+Twitter Stream
+Dribbble
