@@ -12,7 +12,7 @@
 
 📄 Know about my experiences [https://abertierir.github.io/Blog](https://abertierir.github.io/Blog)
 
-**My primary interests are in Public, Urban, Real Estate Economics, and Health. I'm also interested in Biomimicry and Bioeconomy.**
+**My primary interests are in Public, Real Estate Economics, and Healthcare. I'm also interested in Biomimicry and Bioeconomy.**
 
 - You can find my [webstie here](https://abertierir.github.io) and my [CV here](https://ignaciomsarmiento.github.io/assets/CV_Sarmiento_Barbieri.pdf).
 - 📫 If you want to talk to me you can make an appointment [here](https://calendly.com/abertierir/30min), or send me an email to abertierir (at) unal.edu.co
