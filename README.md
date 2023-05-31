@@ -20,12 +20,7 @@
 
 **My content:**
 ---
-- [LinkedIn Courses](https://www.linkedin.com/learning/instructors/ray-villalobos)
-- [Blog](https://raybo.org/)
-- [LinkedIn Profile](https://www.linkedin.com/in/planetoftheweb)
-- [YouTube Channel](https://www.youtube.com/planetoftheweb)
-- [Twitter Stream](https://twitter.com/planetoftheweb)
-- [Dribbble](https://dribbble.com/planetoftheweb)
+
 
 **Connect with me:**
 ---
